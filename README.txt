@@ -1,1 +1,1 @@
-etf is this readme
+survivor s40 starts on feb 12th
